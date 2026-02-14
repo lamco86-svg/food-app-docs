@@ -98,7 +98,7 @@ We may update this Privacy Policy periodically. We will notify you of material c
 
 If you have questions about this Privacy Policy or our privacy practices, please contact us at:
 
-**Email**: support@eatjournal.app
+**Email**: lamco86@gmail.com
 
 ---
 
